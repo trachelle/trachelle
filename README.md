@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Trachelle🌺
-- 🌱 I’m currently learning Criminal Justice and Criminology👩🏼‍✈️ 
+- 👩🏽‍🏫 I’m currently learning Criminal Justice and Criminology 
 - 📫 How to reach me @trachelle.iwamoto@student.chaminade.edu 
 - 😄 Pronouns: She/Her
 - 🌴 From: Kaua'i Hawai'i
